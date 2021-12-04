@@ -1,5 +1,7 @@
 ---
-title: "Welcome to my blog"
+title: "Welcome to my BTS Purple Ocean"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Hey BTS Army!...
+Today is our worldwide handsome...our sweetest person...KIM SEOKJIN'S Birthday!!!
+Happy Birthday Jin Hyung
