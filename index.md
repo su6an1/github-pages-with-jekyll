@@ -2,7 +2,6 @@
 title: "Welcome to my blog"
 ---
 
-Hey! I am glad you are here. I plan to talk about...
 
 "WELCOME TO BTS PURPLE OCEAN"
 Hey BTS Army!...
