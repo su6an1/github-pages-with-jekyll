@@ -2,9 +2,7 @@
 title: "Welcome to my blog"
 ---
 Hey! I am here and happy to talk about...
-
 "WELCOME TO BTS PURPLE OCEAN"
-
 Hey BTS Army!...
 Today is our worldwide handsome...our sweetest person...KIM SEOKJIN'S Birthday!!!
 Happy Birthday Jin Hyung!!!!!
