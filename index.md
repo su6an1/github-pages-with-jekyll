@@ -1,7 +1,6 @@
 ---
 title: "Welcome to my blog"
 ---
-
 Hey! I am here and happy to talk about...
 
 "WELCOME TO BTS PURPLE OCEAN"
